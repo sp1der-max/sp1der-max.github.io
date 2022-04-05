@@ -1,6 +1,6 @@
-## HOW TO BEFRIEND A CAT?
+# HOW TO BEFRIEND A CAT?
 
-### What is a cat? 
+## What is a cat? 
 
 The cat (Felis catus) is a domestic species of small carnivorous mammal. It is the only domesticated species in the family Felidae and is often referred to as the domestic cat to distinguish it from the wild members of the family.
 
@@ -12,7 +12,7 @@ The cat is similar in anatomy to the other felid species: it has a strong flexib
 (https://en.wikipedia.org/wiki/Cat)
 
 
-### How do you befriend a stray cat?
+## How do you befriend a stray cat?
 
 Cats that are used to being around people and being approached and petted will become your friend easily and quickly.
 
@@ -21,10 +21,10 @@ Cats that have had less than stellar relationships with humans will be anything 
 ![image](https://user-images.githubusercontent.com/102668464/161758309-bcdd7501-b93a-4208-bd97-958400969dd2.png)
 
 
-# 0. If you have no intentions of being nice to a cat, just pass by and leave them alone. No one will like you for being down right **abusive** to an innocent animal who doesn't even care about you.
+## 0. If you have no intentions of being nice to a cat, just pass by and leave them alone. No one will like you for being down right **abusive** to an innocent animal who doesn't even care about you.
 
 
-# 1. Let them come to you
+## 1. Let them come to you
 
 ![image](https://user-images.githubusercontent.com/102668464/161759123-dce45e68-d095-44ef-a2f1-d1dcc71b9267.png)
 
@@ -32,7 +32,7 @@ When making friends with a cat, the most important role is to do everything on t
 
 
 
-# 2. Be small and quiet
+## 2. Be small and quiet
 
 ![image](https://user-images.githubusercontent.com/102668464/161760229-7b2c3308-9f79-4dd7-ab70-3a8e74f77899.png)
 
@@ -40,7 +40,7 @@ A cat will be frightened by a human towering over them, so sit down criss-cross 
 
 
 
-# 3. Slow blink at them
+## 3. Slow blink at them
 
 ![image](https://user-images.githubusercontent.com/102668464/161759525-64f19ed8-f0ff-4389-95d6-48f930c543d8.png)
 
@@ -48,7 +48,7 @@ When the cat is looking at you, avoid staring back at them as this may make them
 
 
 
-# 4. Offer out a hand
+## 4. Offer out a hand
 
 ![image](https://user-images.githubusercontent.com/102668464/161758642-ecdfea30-233c-4304-8556-a19e00365043.png)
 
@@ -56,7 +56,7 @@ If the cat appears to be at ease around you, try holding out your hand like the 
 
 
 
-# 5. Don't touch their tummy.
+## 5. Don't touch their tummy.
 
 ![image](https://user-images.githubusercontent.com/102668464/161759881-7dc53595-aa97-4d8d-8244-2e20676d2e4b.png)
 
@@ -64,7 +64,7 @@ The cat may roll over onto its back and show you its tummy once it has become fr
 
 
 
-# 6. Encourage them to play.
+## 6. Encourage them to play.
 
 ![image](https://user-images.githubusercontent.com/102668464/161759987-db0f7cc6-29e6-4908-b838-23201694f6ed.png)
 
