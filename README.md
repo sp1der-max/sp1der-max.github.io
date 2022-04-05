@@ -34,8 +34,7 @@ When making friends with a cat, the most important role is to do everything on t
 
 # 2. Be small and quiet
 
-![image](https://user-images.githubusercontent.com/102668464/161759334-efed829a-385e-45d7-ae66-a2ab2b36d176.png)
-
+![image](https://user-images.githubusercontent.com/102668464/161760229-7b2c3308-9f79-4dd7-ab70-3a8e74f77899.png)
 
 A cat will be frightened by a human towering over them, so sit down criss-cross apple sauce on the floor or in a nearby chair to make yourself less frightening. Similarly, any loud noises or sudden movements may frighten the cat (hold that cough that you desperately want to let out. _**Hold it.**_), so move slowly and quietly around them, but don't sneak up on them if they aren't aware of your presence. 
 
@@ -44,7 +43,6 @@ A cat will be frightened by a human towering over them, so sit down criss-cross 
 # 3. Slow blink at them
 
 ![image](https://user-images.githubusercontent.com/102668464/161759525-64f19ed8-f0ff-4389-95d6-48f930c543d8.png)
-
 
 When the cat is looking at you, avoid staring back at them as this may make them more nervous _(Or do not do this to anyone at all. It's Creepy-)_. Try slowly blinking your eyes at them instead. This shows them that you have enough faith in them to close your eyes in their presence, which is a big deal for a cat. Hopefully, they will reciprocate by slowly blinking back, indicating that they trust you as well. (A privelage, truly.)
 
@@ -62,7 +60,6 @@ If the cat appears to be at ease around you, try holding out your hand like the 
 
 ![image](https://user-images.githubusercontent.com/102668464/161759881-7dc53595-aa97-4d8d-8244-2e20676d2e4b.png)
 
-
 The cat may roll over onto its back and show you its tummy once it has become friendly with you. Try not to touch their tummy when they do this, no matter how tempting it is _(It's a trap)_. They're letting you know they trust you enough not to touch their tummy, so going in for a stroke would be the **ultimate betrayal**. You can expect new red line tattoos and bloodshed. Instead, simply stroke their head or chin to express your mandatory gratitude for the gesture.
 
 
@@ -71,8 +68,9 @@ The cat may roll over onto its back and show you its tummy once it has become fr
 
 ![image](https://user-images.githubusercontent.com/102668464/161759987-db0f7cc6-29e6-4908-b838-23201694f6ed.png)
 
-
 Some cats may not want to be stroked, but they may enjoy playing games with you instead _(Literally. They will charm you like a minx so you can bend down to their will.)_. To see if they stalk something, slowly move a fishing rod toy across the floor a meter or two away from them, or slowly bat a ping pong ball towards them. Playing with cats releases happy hormones in their brains, so it's a great way to bond with them and may eventually lead to head bumps! If you don't have any toys, just simply use anything available. Crumpled papers, hair ties or a pen will suffice. 
 
 
+# All Hail Cats !! 
+![image](https://user-images.githubusercontent.com/102668464/161760641-9c9f64ef-84a6-42d0-9c5b-3eb23d2b9990.png)
 
