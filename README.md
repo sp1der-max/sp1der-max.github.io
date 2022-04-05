@@ -1,12 +1,14 @@
-## Welcome to GitHub Pages
+## HOW TO BEFRIEND A CAT?
 
-You can use the [editor on GitHub](https://github.com/sp1der-max/sp1der-max.github.io/edit/main/README.md) to maintain and preview the content for your website in Markdown files.
+###What is a cat? 
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+The cat (Felis catus) is a domestic species of small carnivorous mammal. It is the only domesticated species in the family Felidae and is often referred to as the domestic cat to distinguish it from the wild members of the family.
 
-### Markdown
+The cat is similar in anatomy to the other felid species: it has a strong flexible body, quick reflexes, sharp teeth and retractable claws adapted to killing small prey. Its night vision and sense of smell are well developed. Cat communication includes vocalizations like meowing, purring, trilling, hissing, growling and grunting as well as cat-specific body language.
 
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
+### How do you befriend a stray cat?
+
+oooo
 
 ```markdown
 Syntax highlighted code block
