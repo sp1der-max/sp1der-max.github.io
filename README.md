@@ -41,7 +41,7 @@ The cat may roll over onto its back and show you its tummy once it has become fr
 
 
 # 6. Encourage them to play.
-Some cats may not want to be stroked, but they may enjoy playing games with you instead _(Literally. They will charm you like a minx so you can bend down to their will.)_. To see if they stalk something, slowly move a fishing rod toy across the floor a meter or two away from them, or slowly bat a ping pong ball towards them. Playing with cats releases happy hormones in their brains, so it's a great way to bond with them and may eventually lead to head bumps! If you don't have any toys, just simply use anything available. Crumpled papers, hair ties or a pen woud suffice. 
+Some cats may not want to be stroked, but they may enjoy playing games with you instead _(Literally. They will charm you like a minx so you can bend down to their will.)_. To see if they stalk something, slowly move a fishing rod toy across the floor a meter or two away from them, or slowly bat a ping pong ball towards them. Playing with cats releases happy hormones in their brains, so it's a great way to bond with them and may eventually lead to head bumps! If you don't have any toys, just simply use anything available. Crumpled papers, hair ties or a pen will suffice. 
 
 
 
