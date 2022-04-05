@@ -8,22 +8,39 @@ The cat is similar in anatomy to the other felid species: it has a strong flexib
 
 ### How do you befriend a stray cat?
 
-oooo
+Cats that are used to being around people and being approached and petted will become your friend easily and quickly.
 
-```markdown
-Syntax highlighted code block
+Cats that have had less than stellar relationships with humans will be anything from more timid to downright hostile.
 
-# Header 1
-## Header 2
-### Header 3
+# 1. Let them come to you
+When making friends with a cat, the most important role is to do everything on their terms. Forcing your affection on them will only stress them out, and even if they stay put, they won't necessarily enjoy the attention you're lavishing on them. It may take some time, but wait for them to approach you first and always give them the opportunity to flee if they so desire.
 
-- Bulleted
-- List
 
-1. Numbered
-2. List
 
-**Bold** and _Italic_ and `Code` text
+# 2. Be small and quiet 
+A cat will be frightened by a human towering over them, so sit down on the floor or in a nearby chair to make yourself less frightening. Similarly, any loud noises or sudden movements may frighten the cat, so move slowly and quietly around them, but don't sneak up on them if they aren't aware of your presence.
+
+
+
+# 3. Slow blink at them 
+When the cat is looking at you, avoid staring back at them as this may make them more nervous. Try slowly blinking your eyes at them instead. This shows them that you have enough faith in them to close your eyes in their presence, which is a big deal for a cat. Hopefully, they will reciprocate by slowly blinking back, indicating that they trust you as well.
+
+
+
+# 4. Offer out a hand
+If the cat appears to be at ease around you, try holding out your hand a few inches to the side to see if they sniff it. Maintain your distance and keep an eye on the cat's body language. They may still be unsure if their weight is shifted to their front or back legs, and any further contact may startle them. If their body language is more neutral and they rub their face against you, this is a good sign because they will be marking you with their own scent (which only cats can smell) through glands in their cheeks. After that, you can give them a gentle head rub or chin stroke. Be patient.
+
+
+
+# 5. Don't touch their tummy.
+The cat may roll over onto its back and show you its tummy once it has become friendly with you. Try not to touch their tummy when they do this, no matter how tempting it is. They're letting you know they trust you enough not to touch their tummy, so going in for a stroke would be the ultimate betrayal. Instead, simply stroke their head or chin to express your gratitude for the gesture.
+
+
+
+# 6. Encourage them to play.
+Some cats may not want to be stroked, but they may enjoy playing games with you instead. To see if they stalk something, slowly move a fishing rod toy across the floor a meter or two away from them, or slowly bat a ping pong ball towards them. Playing with cats releases happy hormones in their brains, so it's a great way to bond with them and may eventually lead to head bumps!
+
+
 
 [Link](url) and ![Image](src)
 ```
