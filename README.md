@@ -44,7 +44,7 @@ A cat will be frightened by a human towering over them, so sit down criss-cross 
 
 ![image](https://user-images.githubusercontent.com/102668464/161759525-64f19ed8-f0ff-4389-95d6-48f930c543d8.png)
 
-When the cat is looking at you, avoid staring back at them as this may make them more nervous _(Or do not do this to anyone at all. It's Creepy-)_. Try slowly blinking your eyes at them instead. This shows them that you have enough faith in them to close your eyes in their presence, which is a big deal for a cat. Hopefully, they will reciprocate by slowly blinking back, indicating that they trust you as well. (A privelage, truly.)
+When the cat is looking at you, avoid staring back at them as this may make them more nervous _(Or do not do this to anyone at all. It's Creepy-)_. Try slowly blinking your eyes at them instead. This shows them that you have enough faith in them to close your eyes in their presence, which is a big deal for a cat. Hopefully, they will reciprocate by slowly blinking back, indicating that they trust you as well. (A privilege, truly.)
 
 
 
