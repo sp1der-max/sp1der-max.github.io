@@ -21,12 +21,12 @@ When making friends with a cat, the most important role is to do everything on t
 
 
 # 2. Be small and quiet 
-A cat will be frightened by a human towering over them, so sit down criss-cross apple sauce on the floor or in a nearby chair to make yourself less frightening. Similarly, any loud noises or sudden movements may frighten the cat (hold that cough that you desperately want to let out _**hold it.**_), so move slowly and quietly around them, but don't sneak up on them if they aren't aware of your presence. 
+A cat will be frightened by a human towering over them, so sit down criss-cross apple sauce on the floor or in a nearby chair to make yourself less frightening. Similarly, any loud noises or sudden movements may frighten the cat (hold that cough that you desperately want to let out. _**Hold it.**_), so move slowly and quietly around them, but don't sneak up on them if they aren't aware of your presence. 
 
 
 
 # 3. Slow blink at them 
-When the cat is looking at you, avoid staring back at them as this may make them more nervous _(Or do not do this to anyone at all. Creepy-)_. Try slowly blinking your eyes at them instead. This shows them that you have enough faith in them to close your eyes in their presence, which is a big deal for a cat. Hopefully, they will reciprocate by slowly blinking back, indicating that they trust you as well.
+When the cat is looking at you, avoid staring back at them as this may make them more nervous _(Or do not do this to anyone at all. Creepy-)_. Try slowly blinking your eyes at them instead. This shows them that you have enough faith in them to close your eyes in their presence, which is a big deal for a cat. Hopefully, they will reciprocate by slowly blinking back, indicating that they trust you as well. (A privelage, truly.)
 
 
 
